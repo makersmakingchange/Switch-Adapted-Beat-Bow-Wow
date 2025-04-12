@@ -4,3 +4,7 @@ If you want an accessingle singing toy dog, the Switch-Adapted Beat Bow Wow from
 These adaptation instructions were developed by, and are attributed to Switched Adapted Toys.
 
 If you're looking for video instructions for a single switch adaptation, click here: https://www.youtube.com/watch?v=45SwBttVEOA
+
+<!-- ABOUT MMC START -->
+
+<!-- ABOUT MMC END -->
